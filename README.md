@@ -17,3 +17,6 @@ Feel free to explore the repository, provide feedback, or connect with me for fu
 ## Contact Information
 
 For any inquiries or collaborations, feel free to reach out:
+
+- Email: [ansarihamza2802@gmail.com](mailto:ansarihamza2802@gmail.com)
+- LinkedIn: [Mohammed Hamza Ansari](https://www.linkedin.com/in/mohammed-hamza-ansari-3105601b0)
